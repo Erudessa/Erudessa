@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Erudessa
 - 👀 I’m interested in learning new things.
-- 🌱 I’m currently learning Esperanto and coding.
+- 🌱 I’m currently learning Esperanto, stoicism, and coding.
 - 💞️ I’m looking to collaborate on fun projects that teach me new skills.
 - 📫 How to reach me gabi.picard35@gmail.com
 
