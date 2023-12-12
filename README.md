@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Erudessa
 - 👀 I’m interested in Critical Role, Game Grumps, and learning new things.
-- 🌱 I’m currently learning Esperanto, stoicism, and coding (namely: HTML and CSS).
+- 🌱 I’m currently learning Esperanto, Stoicism, and coding (namely: HTML and CSS).
 - 💞️ I’m looking to collaborate on fun projects that teach me new skills.
 - 📫 How to reach me gabi.picard35@gmail.com
 
